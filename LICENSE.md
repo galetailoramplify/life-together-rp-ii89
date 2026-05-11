@@ -1,4 +1,4 @@
-#  
+#  Experience ultimate mining tycoon like never before with custom Scripts for ultimate mining tycoon, the #1 Script. Includes fly and god mode for
 
 
 
